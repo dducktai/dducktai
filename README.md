@@ -25,8 +25,6 @@ I am interested in the following topics:
 
 ---
 
-## 🚀 Projects
-
 ## 🚀 Projects  
 
 <p align="center">
